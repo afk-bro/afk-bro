@@ -2,7 +2,7 @@
 - 👀 I’m interested in being afk
 - 🌱 I’m currently learning stuff so i can be afk
 - 💞️ I’m looking to collaborate on getting me afk
-- 📫 How to reach me ...don't
+- 📫 How to reach me ...don't call me, i'll call you.
 - ⚡ Fun fact: no
 
 <!---
